@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @captaincool9
+- 👋 Hi, I’m Rohit Ranjan
 - 👀 I’m currently working on Data Analytics & Development 
 - 🌱 I’m currently student at NIT Agartala 
 - 📫 How to reach me ; rohitranjan100999@gmail.com
