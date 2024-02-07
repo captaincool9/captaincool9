@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Rohit Ranjan
 - 👀 I’m currently working on Data Analytics & Development 
-- 🌱 I’m currently student at NIT Agartala 
+- 🌱 I’m graduated from NIT Agartala 
 - 📫 How to reach me ; rohitranjan100999@gmail.com
 - ⚡ Fun fact: ♥️ Photography 📷 Traveling 🌏 
 
